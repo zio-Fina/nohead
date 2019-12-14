@@ -22,5 +22,12 @@ china弱智事件，没头脑事件集合记录0.1
 供几十年百年后的人们查看真相、嘲笑、评论当代著名事件。
 
 
+
+# Lost contact with a woman.
+## From 9012 year.
+Browse twitter today, inadvertently see this message. Let's focus on the follow-up of those lost women.
+
+
+https://houxu.app/lives/26804
 ## - [ 待续 ] Date ##
 ### - [ title ]
